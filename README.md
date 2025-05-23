@@ -13,6 +13,8 @@ IPL Stats Analysis: Designed and delivered a comprehensive dashboard visualizing
 Let’s connect! 
 linkedin - https://www.linkedin.com/in/gyanesh-paikrao-819743311/
 
+![Screenshot 2025-05-24 001213](https://github.com/user-attachments/assets/8e133160-a197-46ed-9cde-94c5bd4c5d7d)
+![Screenshot 2025-05-24 001333](https://github.com/user-attachments/assets/9d285d5c-fc24-4899-8ea3-8b659cd6e0a8)
 ![Screenshot 2025-05-24 001005](https://github.com/user-attachments/assets/28f96c04-6346-4241-9571-706943922fa6)
 
 
